@@ -1,4 +1,4 @@
 # Video Demo
 
 GoodLife Book Store
-(Updated Soon)
+https://youtu.be/QFCwpdgjfZ4
